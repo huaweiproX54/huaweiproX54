@@ -1,0 +1,4 @@
+- hi im lotus, saturn or arti you can call me whichever you want
+- im just the average trans guy, uh yeah
+- i go by any pronouns but i prefer he/him or she/her!! please try to avoid using they/them on me as much as you can, makes me uncomfortable
+- heres like most of my links idk man https://orangelizard.straw.page/
